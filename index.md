@@ -6,7 +6,7 @@
 
 [DELETED](https://twitter.com/minoragi)
 
-I lost my swiss bank acc
+~~losted swiss bank acc~~
 
 ### 2018_datayanolja
 
