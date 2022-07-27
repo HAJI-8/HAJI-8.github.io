@@ -4,7 +4,7 @@
 
 ### 2017_minoragi
 
-<img src="image/2017_minoragi.index.png"/>
+[DELETED](https://twitter.com/minoragi)
 
 
 ### 2018_datayanolja
